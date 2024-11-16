@@ -1,3 +1,5 @@
 # People
 Mieszko Iwaniec *  
-Jakub Erazmus
+Jakub Erazmus  
+
+Reszta osób się chyba wysypała  
