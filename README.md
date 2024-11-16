@@ -1,3 +1,3 @@
 # People
-Mieszko Iwaniec *
+Mieszko Iwaniec *  
 Jakub Erazmus
